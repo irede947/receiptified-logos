@@ -1,0 +1,1 @@
+# Receiptified Logos
